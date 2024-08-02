@@ -4,8 +4,8 @@
 
 ***
 
-🍃 Demo For You - [Open Here](https://avipatilpro.github.io/CC_Gen/)
+ - [join telegram](https://t.me/Stark_Network1)
 
 ---
 
-<h4 align='center'> © 2021 Avishkar Patil 😎 <h4>
+<h4 align='center'> © our channel@Stark_Network1 😎 <h4>
